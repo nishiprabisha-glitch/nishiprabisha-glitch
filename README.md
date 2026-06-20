@@ -1,2 +1,2 @@
 ## Hi there 👋
-@Prabisha Consulting
+Have a wonderful weekends
